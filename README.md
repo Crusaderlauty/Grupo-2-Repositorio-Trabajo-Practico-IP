@@ -16,7 +16,7 @@ Integrantes del Equipo
 
 · Alejandro Peralta
 . Aylen Melgarejo
-· Lautaro Long
+· Lautaro Lang
 
 ---
 
